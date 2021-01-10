@@ -1,0 +1,10 @@
+INGREDIENTS
+2/3 cup	melted butter (150 mL)
+2 cups	lightly packed brown sugar (500 mL)
+2	eggs (2)
+2 tbsp	hot water (30 mL)
+2 2/3 cups	all-purpose flour (650 mL)
+1 tsp	baking powder (5 mL)
+1 tsp	baking soda (5 mL)
+1/4 tsp	salt (1 mL)
+1 2/3 cups	CHIPITS Milk Chocolate Chips (270 g)
